@@ -12,3 +12,5 @@
 
 _Quería comentarte que muchos con los que he hablado de clase se perdieron en la ultima clase incluyéndome_
 
+Edad 17
+
